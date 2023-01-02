@@ -1,5 +1,4 @@
 ✨ Management and Lead Development @ play.nidocraft.net (Minecraft Java)
-
 🖥️ Java, Python and PHP/web developer.
 
 <!---

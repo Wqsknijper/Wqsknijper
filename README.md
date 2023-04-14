@@ -1,5 +1,5 @@
 # Wqsknijper
-I am Wqsknijper, feel free to call me Sammie. (Yet still not my irl name)
+I am Wqsknijper. If that is too hard, feel free to call me Sam or Sammie. It's whatever you prefer.
 
 ## Currently working on
 There's only one project I am **currently** working on.
